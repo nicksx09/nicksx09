@@ -7,3 +7,4 @@ E fiquei em 3 lugar nos regionais🥉
 e nos Escolares de Futsal 3 lugar também🥉
 Ainda esse ano quero fazer um teste para um time de Futebol
 E moro em guaira paraná
+Estudo no Colégio Estadual President Roosevelt🏫🎒
